@@ -1,1 +1,2 @@
-Building things & learning 
+Wahaj
+Learning.
